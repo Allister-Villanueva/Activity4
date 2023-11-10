@@ -1,3 +1,3 @@
 ## Collaborators
-Villanueva, Allister B.
-Carandang, John Howard
+-Villanueva, Allister B.
+-Carandang, John Howard D.
